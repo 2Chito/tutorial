@@ -1,1 +1,1 @@
-徳島大学に住んでいます
+kousuke-10 is criminal!
